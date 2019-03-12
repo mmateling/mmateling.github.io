@@ -1,4 +1,4 @@
-## Marian Mateling
+## Assistant Researcher at University of Wisconsin - Madison
 
 Visit my blog detailing my [Antarctic Field Work in 2017-2018](https://marianantarctica.wordpress.com)!
 
